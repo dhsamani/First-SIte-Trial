@@ -6,3 +6,5 @@ About Me:
 
 I am Dharmesh Samani, working in syngene international (since 2020). 
 I have completed my master's from Nirma University, Ahmedabad in 2014. 
+
+I am 29 years old and I am from Rajkot. 
